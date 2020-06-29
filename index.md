@@ -25,3 +25,5 @@ Inspektor Juve und der Journalist Jerome Fandor nehmen den Kampf gegen ihn auf.
 > Nothing. . . . Everything!
 > But what is it?
 > Nobody. . . . And yet it is somebody!
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/8/86/Fantomas_early_film_poster.jpg/297px-Fantomas_early_film_poster.jpg"/>
